@@ -55,3 +55,5 @@ This repository is published by Blue Rose Auto as the source of its brake care g
 ---
 
 *Published by [Blue Rose Auto Care & Repair Services](https://blueroseauto.com/), 3436 Olympic St, Springfield, OR 97478 · (541) 641-8877. Updated 2026-10-30.*
+
+Find Blue Rose Auto Care & Repair Services on [Facebook](https://www.facebook.com/BlueRoseAuto/) · [Instagram](https://www.instagram.com/blueroseauto/) · [YouTube](https://www.youtube.com/@BLUEROSEAUTO) · [LinkedIn](https://www.linkedin.com/company/blueroseauto/) · [Pinterest](https://www.pinterest.com/blueroseauto/) · [Bluesky](https://bsky.app/profile/blueroseauto.bsky.social) · [Yelp](https://www.yelp.com/biz/blue-rose-auto-care-and-repair-services-springfield) · [BBB](https://www.bbb.org/us/or/springfield/profile/auto-detailing/blue-rose-auto-detail-1296-37002767) · [Birdeye](https://reviews.birdeye.com/blue-rose-auto-166082345839887) · [Google Maps](https://maps.app.goo.gl/MK6KRZc9GPaN5caa9).
